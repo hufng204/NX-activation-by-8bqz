@@ -1,0 +1,1 @@
+# NX-activation-by-8bqz
